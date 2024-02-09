@@ -1,0 +1,5 @@
+Crowdfunding is a method of raising capital or funds through the collective effort of friends, family, customers, individual investors and others. This approach relies on the collaborative efforts of a large pool of individuals – primarily online via social media and crowdfunding platforms – and accesses their networks for greater reach and exposure.
+
+Crowdfunding is the opposite of traditional financing methods, where a project or business raises funds from a small, select group of individuals or institutions. Instead, crowdfunding broadens fundraising efforts to include anyone who has an interest in the project or business and is willing to contribute money to support it. These contributions can range from very small to very large amounts, depending on the nature of the project or business and the potential return.
+
+Through crowdfunding, entrepreneurs or project initiators can harness the reach of the internet to raise money for various purposes, such as starting a business, developing a new product, supporting a social cause or helping individuals in need.
